@@ -3,7 +3,7 @@
 **Institution:** C. M. Mane Research Institute *(A Research Unit of MANKIND Foundation, Hingoli, India)*  
 **Principal Investigator:** Dr. Charusheel Manikrao Mane  
 **ORCID iD:** [0009-0007-0561-9936](https://orcid.org)  
-**Core Axiom:** Cosmic Dark Matter + Microbes + Matter = One  
+**Core Axiom:** Cosmic Dark Matter + Microbes + Matter (& light + energy + gravity) = One.  
 
 ---
 
